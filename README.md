@@ -7,3 +7,4 @@ For any questions, please reach out to DailyTelugu Support at support@dailytelug
 More updates to follow!
 
 Thank you!
+DailyTelugu Support
